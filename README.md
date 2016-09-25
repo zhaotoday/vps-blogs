@@ -24,6 +24,9 @@ http://www.deepvps.com/
 VPS 大学  
 http://www.vpsdx.com/
 
+VPS 评审  
+http://www.vpsps.com/
+
 ## 国外
 
 VPSUS  
