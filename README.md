@@ -21,7 +21,7 @@ https://www.vmvps.com/
 深度 VPS  
 http://www.deepvps.com/
 
-VPS 大学
+VPS 大学  
 http://www.vpsdx.com/
 
 ## 国外
