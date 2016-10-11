@@ -18,6 +18,9 @@ http://www.vpsmm.com/
 VPS 推介网  
 http://www.7vps.net/
 
+VPS 优惠信息  
+http://www.1bie.com/
+
 微魔部落  
 https://www.vmvps.com/
 
