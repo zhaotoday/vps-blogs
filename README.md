@@ -9,6 +9,9 @@ http://www.zrblog.net/
 老左博客  
 http://www.laozuo.org/
 
+VPS 推荐网  
+http://vpsadd.com/
+
 小夜博客  
 http://www.vpsmm.com/
 
