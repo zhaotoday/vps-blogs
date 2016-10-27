@@ -21,9 +21,6 @@ http://www.7vps.net/
 VPS 优惠信息  
 http://www.1bie.com/
 
-微魔部落  
-https://www.vmvps.com/
-
 深度 VPS  
 http://www.deepvps.com/
 
