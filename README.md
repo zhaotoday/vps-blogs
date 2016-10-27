@@ -30,7 +30,7 @@ http://www.vpsdx.com/
 VPS 评审  
 http://www.vpsps.com/
 
-美国主机评论博客
+美国主机评论博客  
 http://www.yd631.com/
 
 ## 国外
